@@ -17,7 +17,6 @@ Anime Adventures Script No Key 2025 Pastebin Keyless OP GUI Roblox Hack Exploit 
 # Roblox Anime Adventures Script 📜
 
 ![Roblox Anime Adventures](https://example.com/banner-image.png)  
-*(Replace the URL above with your own image link to make your repository visually appealing.)*
 
 ## 📝 Overview
 
